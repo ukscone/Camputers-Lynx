@@ -1,1 +1,1 @@
-# Camputers-Lynx
+# Camputers Lynx
